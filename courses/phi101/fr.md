@@ -218,7 +218,7 @@ Sa thèse centrale est que « la liberté est établie par le conflit des pouvoi
 >
 > (Lord Acton)
 
-En d’autres termes, la liberté c’est le droit pour les individus suivre leur propre conscience et ce n’est pas à l’État de dicter à l’homme sa conduite sur le plan philosophique, moral et religieux.
+En d’autres termes, la liberté c’est le droit pour les individus de suivre leur propre conscience et ce n’est pas à l’État de dicter à l’homme sa conduite sur le plan philosophique, moral et religieux.
 
 Friedrich Hayek avait initialement envisagé de nommer la Société du Mont Pèlerin : « Acton-Tocqueville Society », en hommage à ces deux penseurs qu'il admirait profondément : Lord Acton et Alexis de Tocqueville. C'est finalement le nom du lieu où s'est tenue la première réunion de la Société, le Mont Pèlerin en Suisse, qui a été retenu.
 
